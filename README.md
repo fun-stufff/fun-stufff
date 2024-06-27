@@ -1,0 +1,2 @@
+- 👋 Hello there
+- 🌱 This acc is dedicated for my small and fun projects
